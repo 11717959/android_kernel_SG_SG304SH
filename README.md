@@ -1,4 +1,4 @@
-![SG304sh](http://www.apppoo.com/wp-content/uploads/2014/04/index-pic-03.jpg "SG304sh")
+![Imange of index-pic-03 ](http://www.apppoo.com/wp-content/uploads/2014/04/index-pic-03index-pic-03.jpg)
 	
 	
 	
